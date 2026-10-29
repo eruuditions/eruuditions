@@ -12,5 +12,3 @@ $\color{#fffff}{\textsf{chance fictkin and biggest fan}}$        <img src="https
 $\color{#fffff}{\textsf{shedletsky, ivan, shinonome ena, and sparkle kin}}$
 
 <img src="https://files.catbox.moe/qbt8oe.png">
-
-$\color{#782222}{\textsf{i}}$ <img src="https://file.garden/ZkaDFTtlXCXgKevM/pixels/red/0ekwckj.gif"> $\color{#782222}{\textsf{my partner}}$
